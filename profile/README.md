@@ -2,11 +2,11 @@
 
 Maargan (𝟚𝟘𝟚𝟝) – 𝔻𝕠𝕨𝕟𝕝𝚘𝕒𝕕 𝔻𝕦𝕒𝕝 𝔸𝕦𝕕𝕚𝕠 𝟙𝟘𝟠𝟘𝚙 (𝔼𝕟𝕘𝕝𝕚𝕤𝕙/ℍ𝕚𝕟𝕕𝕚) 𝕠𝕟 𝔽𝕚𝕝𝙼𝕪𝕫𝚒𝕝𝕝𝕒
 
-### <a href="https://twitter.com/Vindy24600798/status/1944033321761354045" rel="nofollow">➤ ► CLICK HERE TO Download NOW</a>
+### <a href="https://is.gd/IqhzbP" rel="nofollow">➤ ► CLICK HERE TO Download NOW</a>
 
-### <a href="https://twitter.com/Vindy24600798/status/1944033321761354045" rel="nofollow">➤ ► CLICK HERE TO Download NOW</a>
+### <a href="https://is.gd/IqhzbP" rel="nofollow">➤ ► CLICK HERE TO Download NOW</a>
 
-### <a href="https://twitter.com/Vindy24600798/status/1944033321761354045" rel="nofollow">➤ ► CLICK HERE TO Download NOW</a>
+### <a href="https://is.gd/IqhzbP" rel="nofollow">➤ ► CLICK HERE TO Download NOW</a>
 
 ---
 
